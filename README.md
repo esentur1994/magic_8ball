@@ -1,0 +1,1 @@
+To look at it simply, a Magic 8 ball online is a fortune telling tool that has made its way into popular culture as a game
